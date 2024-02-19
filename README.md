@@ -11,4 +11,6 @@ Just A List
 
 5.https://www.bestbuy.com/ Big Variety
 
-6.
+6.https://www.newegg.com/ Better Etsy
+
+7.
